@@ -8,3 +8,5 @@ You probably know my name by now , but just incase . _Hi , im Auto , mostly know
 _Weirdos and Zoos will be blocked . Proshippers too ._
 
 **ITS , not much . But i tried . _Thanks for reading anyways_ .**
+
+``![rickroll](https://media1.tenor.com/m/TSHZxwJ5vDIAAAAd/great-day-roblox-meme.gif)``
